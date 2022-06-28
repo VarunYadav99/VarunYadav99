@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @VarunRaj Badri
-- 👀 I’m interested in computer science
+- 👀 I’m interested in Tech 
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on anything out of the world
 - 📫 reach me at varunrajbadri@gmail.com
 
 <!---
