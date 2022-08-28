@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VarunRaj Badri
-- 👀 I’m interested in Tech 
+- 👀 I’m interested in Tech and product Building
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on anything out of the world
 - 📫 reach me at varunrajbadri@gmail.com
